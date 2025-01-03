@@ -1,0 +1,1 @@
+ability of thinking is very important. Knowledge is becoming cheaper.s
